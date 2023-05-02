@@ -1,4 +1,4 @@
-# Hi there 👋
+# Sophie Griffiths
 
 👩‍🎓 I have completed a full-time training programme at AiCore with a specialisation in Data Analytics.
 
